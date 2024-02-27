@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @xzzson! a gamer, dog and cat lover!
 - 👀 I’m interested in technology
-- 🧑‍💻 I’m currently trying to learn ethical hacking!
+- 🧑‍💻 I’m currently on Linux!
 
 Okay so im a silly guy and im proud!
 <!---
